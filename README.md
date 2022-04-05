@@ -1,1 +1,1 @@
-# Laborat-rio-X---Use-Academy
+# Laboratorio-X Use-Academy
